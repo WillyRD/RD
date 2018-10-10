@@ -1,2 +1,2 @@
 # RD
-linked to my RD account
+linked to my Realdolmen account
